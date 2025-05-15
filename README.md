@@ -1,2 +1,2 @@
 # trallalero-tralala
-vs bombardino cocodrilo
+vs bombardino crocodrilo
